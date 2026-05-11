@@ -1,4 +1,4 @@
-#  
+#  best Script for re:rangers x is the best re:rangers x Script, featuring no clip and one-hit kill. Safe and powerful for all your needs.
 
 
 
